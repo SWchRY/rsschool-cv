@@ -1,1 +1,1 @@
-https://SWchRY.github.io/rsschool-cv/cv
+https://SWchRY.github.io/rsschool-cv/
