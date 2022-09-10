@@ -1,1 +1,1 @@
-# rsschool-cv
+https://SWchRY.github.io/rsschool-cv/
